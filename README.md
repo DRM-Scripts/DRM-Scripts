@@ -1,6 +1,4 @@
 ### Official Links
-- Support: https://drmscripts.com - Now Live
-Suport Forum is now OPEN.
 
 - Official Telegram: [https://t.me/+HSHUcUn0kRJmNzM0](https://t.me/+HSHUcUn0kRJmNzM0)
 - Email: contact@drmscripts.com
